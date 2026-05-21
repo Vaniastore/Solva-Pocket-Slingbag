@@ -1,1 +1,0 @@
-# Solva-Pocket-Slingbag
